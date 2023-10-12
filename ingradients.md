@@ -4,6 +4,7 @@
 * 2 onions
 * 2 eggs
 * some coriander
+* some chillies
 
 
 
